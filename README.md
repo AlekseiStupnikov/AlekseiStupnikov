@@ -160,7 +160,7 @@
 
 ## 📬 Связь со мной
 Email: alexei.stupnikov@mail.ru 
-Telegram: @Gentlebloke
+Telegram: [@Gentlebloke](https://t.me/Gentlebloke)
 
 ---
 
